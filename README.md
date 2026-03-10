@@ -1,5 +1,5 @@
                                                                      ### 💻 Aliza Tariq
-                                        **Sofwatre Engineer | Problem Solver | Tech, Community, Growth | AI & ML Enthusiast**
+                                        #Sofwatre Engineer | #Problem Solver | #Tech, #Community, #Growth | #AI & ML Enthusiast**
 
 
 <p align="left">
